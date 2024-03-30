@@ -1,5 +1,5 @@
 Binance Ignites TON Token with 50x Leverage & Telegram Revenue Sharing
-https://Binanceton.websites.co.in
+https://t.me/BINANCET0N
 
  • Binance launches TON Perpetual Contract with 50x leverage, boosting TON token price by 10%
 
